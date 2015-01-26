@@ -4,4 +4,3 @@
 >- I am interested in consumer and firm behavior in the context of various marketing problems. Currently, I want to investigate the 'pass-through' behavior of retailers in the response of whole salers promotion strategy in alcohol industry
 >- ![imagehere](p3.png?raw=true)
 
-  aaaaaaa
